@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to further enhance my career by searching for opportunities such as internships or jobs.
-- 🥅 2021 Goals: Able to get as many internships and jobs.
+- 🥅 2022 Goals: Able to get as many internships and jobs.
 - ⚡ Fun fact: I love to sing (in the bathroom lol) and play Genshin Impact and upload videos of me playing in YouTube
 
 ### Connect with me:
