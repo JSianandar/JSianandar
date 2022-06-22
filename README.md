@@ -1,5 +1,3 @@
-### Hi there, I'm Jason Sianandar 👋
-
 ## I'm a University Student, Tech Enthusiast, Front-End Developer, and Future Full Stack Developer!!
 
 - 🌱 I’m currently learning everything 🤣
