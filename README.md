@@ -1,9 +1,9 @@
-## I'm a University Student, Tech Enthusiast, Front-End Developer, and Future Full Stack Developer!!
+## I'm a Software Developer, Tech Enthusiast, Front-End Developer, and Future Full Stack Developer
 
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to further enhance my career by searching for opportunities such as internships or jobs.
-- 🥅 2022 Goals: Able to get as many internships and jobs.
-- ⚡ Fun fact: I love to sing (in the bathroom lol) and play Genshin Impact and upload videos of me playing in YouTube
+- 🌱 I’m currently learning everything (trying to anyways) 🤣
+- 👯 I’m currently working as a Software Developer at a Start-up in Jakarta.
+- 🥅 2024 Goals: Just increase my knowledge and experience.
+- ⚡ Fun fact: I love to sing (in the bathroom and the car) and play Genshin Impact and upload videos of me playing in YouTube
 
 ### Connect with me:
 
