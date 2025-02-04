@@ -1,8 +1,8 @@
 ## I'm a Software Developer, Tech Enthusiast, Front-End Developer, and Future Full Stack Developer
 
 - 🌱 I’m currently learning everything (trying to anyways) 🤣
-- 👯 I’m currently working as a Software Developer at a Start-up in Jakarta.
-- 🥅 2024 Goals: Just increase my knowledge and experience.
+- 👯 I’m currently working as a Software Developer at a Finance Start-up in Jakarta.
+- 🥅 2025 Goals: Just increase my knowledge and experience.
 - ⚡ Fun fact: I love to sing (in the bathroom and the car) and play Genshin Impact and upload videos of me playing in YouTube
 
 ### Connect with me:
